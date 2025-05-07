@@ -1,0 +1,7 @@
+- [ ] sledujteto.cz
+- [ ] sdilej.cz
+- [ ] datoid.cz
+- [ ] webshare.cz
+- [ ] streamuj.tv
+- [ ] ivysílání
+- [ ] kukajto
